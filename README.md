@@ -15,7 +15,7 @@ Initiatives that advocate for digital inclusivity and wider content accessibilit
 - Email: support@nexonott.com
 Youtube: [Youtube channel](https://www.youtube.com/channel/UCzeQakObPgakB8MGmbLjYdg)
 Facebook: [Facebook Page](https://www.facebook.com/profile.php?id=61561649724552)
-Visit our website: [www.nexonott.tv](https://nexonott.com
+Visit our website: https://nexonott.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
